@@ -6,4 +6,4 @@ Sou estudante do 2º ano, no ensino médio.
 
 Estou aqui com o objetivo de compartilhar os meus projetos criados em sala de aula pelo alura.
 
-![](https://tenor.com/pt-BR/view/escorregando-yuri-alberto-caindo-de-joelhos-comemorando-caindo-pra-torcida-gif-9040935196131892578)
+![](https://tenor.com/pt-BR/view/escorregando-yuri-alberto-caindo-de-joelhos-comemorando-caindo-pra-torcida-gif-)
