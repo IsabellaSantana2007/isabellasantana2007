@@ -8,3 +8,4 @@ Estou aqui com o objetivo de compartilhar os meus projetos criados em sala de au
 
 E vai *CORINTHIANS*
 
+! [] (https://tenor.com/pt-BR/view/escorregando-yuri-alberto-caindo-de-joelhos-comemorando-caindo-pra-torcida-gif-9040935196131892578)
